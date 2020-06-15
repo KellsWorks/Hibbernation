@@ -1,0 +1,1 @@
+Quick launch with a single tap. Enjoy!
